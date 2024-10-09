@@ -1,6 +1,6 @@
 👋 Hi, I’m @Haanyi  
 🌍 A culture-lover exploring all corners of society. A curious mind passionate about VC/PE. I believe in the transformative power of finance to drive societal change, and the pursuit of a brighter future.
-🎸 When I’m not diving deep into financial models, you’ll catch me exploring the depths of subculture fashion, listening to Post-Punk, Rock, R&B, Hip-Pop, and occasionally vibing to Jazz and folk tunes.  
+🎸 Another life living in ... Arts, Animation, Cinéma, Photography, Subculture fashion, Philosophy, Sociology, Post-Punk, Rock, Jazz, R&B, Hip-Pop...  
 
 👀 I’m interested in:
 - Unpacking the mechanics of how businesses shape society
